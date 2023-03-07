@@ -1,1 +1,1 @@
-# SAI-2023-Team-A
+# SAI Season6 A팀 활동 공간입니다!
